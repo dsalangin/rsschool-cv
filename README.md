@@ -1,1 +1,1 @@
-# [rsschool-cv](https://dsalangin.github.io/rsschool-cv/cv)
+# *[rsschool-cv](https://dsalangin.github.io/rsschool-cv/cv)*
